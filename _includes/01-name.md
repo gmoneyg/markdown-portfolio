@@ -1,2 +1,2 @@
-#Garrett Taylor
+# Garrett Taylor
 ### markdown portfolio
