@@ -1,0 +1,6 @@
+- fungi
+- books
+- trees
+- books on fungi or trees
+- :mushroom:
+- 🌲
