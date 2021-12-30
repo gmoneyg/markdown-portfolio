@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+- fungi
+- books
+- trees
+- books on fungi or trees
+- :mushroom:
+- 🌲
