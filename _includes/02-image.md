@@ -1,1 +1,1 @@
-![Amanita amerirubescens group](https://www.inaturalist.org/photos/166034200?size=large)
+![Amanita amerirubescens group](https://drive.google.com/file/d/1rdPmSqcreudaZiQU7120Y2XpvWDHo-6g/view?usp=sharing)
