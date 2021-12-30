@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Amanita amerirubescens group](https://www.inaturalist.org/photos/166034200)
